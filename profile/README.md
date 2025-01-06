@@ -1,4 +1,4 @@
-# Bihar Government Job Opportunities: Latest Updates
+# Bihar Sarkari Job 2025: Latest Updates
 
 Bihar offers a wide range of government job opportunities across various departments and sectors. Below are the latest openings and initiatives:
 
